@@ -1,2 +1,2 @@
 Working  on it
-readme will be update soon thanks
+readme will be update soon thank you
